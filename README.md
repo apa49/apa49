@@ -8,7 +8,7 @@
 
 - 📫 Contact me **[here](aparnayadav49@gmail.com)**
 
-- ⚡ Fun fact **People think I'm innocent.**
+
 
 ## 📚 My Skills
 
